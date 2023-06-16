@@ -1,7 +1,11 @@
-Heyo !
+Heya there! 
 
-I usually go by Norman, Nolan, or Wil, but you can call me anythin' ya want!
+I go by multiple names like Norman, Nolan, Wil, etc, but ya can call me anything ya want! 
 
-Genderfluid + Unlabeled
+I'm a genderfluid and unlabeled/questioning guy, so just use any prns and call me gay if you want. 
 
-eng/norwegian!
+I'm not fully fluent in english, so don't mind if I make any mistakes :)
+
+Minor!!! 13-15
+
+Read more about me in my rentry! :))
